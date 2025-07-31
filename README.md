@@ -37,5 +37,5 @@ This template helped me gain more confidence in structuring web pages and applyi
 
 ## 📬 Contact
 
-- [LinkedIn](reham-abo-shaheen-17596326a)  
+- [LinkedIn](https://www.linkedin.com/in/reham-abo-shaheen-17596326a/)  
 - [Behance](https://www.behance.net/rehamaboshaheen)
